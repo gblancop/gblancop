@@ -1,5 +1,5 @@
 # 💫 About Me:
-Currently learning programming, interested in blockchain development.<br>Engineer and MBA with experience in business administration, business management, financial management and cost reduction strategies, planning, great sales experience both managing direct sales teams and inside sales. Proven record of achievements in investment management, strategic planning, business development and relationship management. Good communicator and negotiator with strong leadership, as well as analysis, problem solving, decision making and team work skills. Extensive experience working with teams in Latin America and Europe.
+✔️Currently learning programming, interested in blockchain development.<br>✔️Engineer and MBA with experience in business administration, business management, financial management and cost reduction strategies, planning, great sales experience both managing direct sales teams and inside sales. Proven record of achievements in investment management, strategic planning, business development and relationship management. Good communicator and negotiator with strong leadership, as well as analysis, problem solving, decision making and team work skills. Extensive experience working with teams in Latin America and Europe.
 
 
 ## 🌐 Socials:
